@@ -1,1 +1,1 @@
-graphics 40 percent
+mini.instagram mini photo social media
